@@ -8,5 +8,10 @@ and my twitch PLS: [Twitch](https://www.twitch.tv/kyanvandervlies)
 
 also i <3 countryballs, my favorite countryball is: reichtangle
 
-THIS IS A DUMB WEBSITE CUSE ITS NOT DONE!!!
+but my youtube is dutch and my twitch also
 
+i dont have merch but now a website :)
+
+and join also my discord!!!: https://discord.gg/ZYp5xsm2
+
+`THIS WEBSITE IS DUMB CUSE ITS NOT DONE!!!
