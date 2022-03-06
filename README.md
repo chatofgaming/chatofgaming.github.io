@@ -12,6 +12,6 @@ but my youtube is dutch and my twitch also
 
 i dont have merch but now a website :)
 
-and join also my discord!!!: https://discord.gg/ZYp5xsm2
+and join also my discord!!!: [Discord](https://discord.gg/MKpEVCb9Dq)
 
-`THIS WEBSITE IS DUMB CUSE ITS NOT DONE!!!
+THIS WEBSITE IS DUMB CUSE ITS NOT DONE!!!
